@@ -28,3 +28,5 @@ Gejin Zhu https://vimeo.com/358325878
 Kelly Wang	https://vimeo.com/358715394
 
 Queena Wang https://vimeo.com/358804899
+
+Bingyu Xia https://vimeo.com/manage/358623629
